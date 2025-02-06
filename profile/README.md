@@ -3,7 +3,7 @@
 ### [➤ ►🌍📺📱👉 'The Brutalist' 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎](https://cutt.ly/Ze355VaT)
 ### [➤ ►🌍📺📱👉 'The Brutalist' 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎](https://cutt.ly/Ze355VaT)
 ### [➤ ►🌍📺📱👉 'The Brutalist' 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍](https://cutt.ly/Ze355VaT)
-<p><a href="https://cutt.ly/Ze355VaT" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/3L3l6LsiLGHkTG4RFB2aBA6BttB.jpg" alt="The Brutalist" style="max-width: 100%;"></a></p>
+<p><a href="https://cutt.ly/Ze355VaT" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/b0dyZlvVQml1KgQpJQbA5osr5c8.jpg" alt="The Brutalist" style="max-width: 100%;"></a></p>
 
 Wondering how to W𝚊tch 'The Brutalist' 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
